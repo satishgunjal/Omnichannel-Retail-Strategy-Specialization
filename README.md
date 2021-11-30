@@ -1,1 +1,1 @@
-# satishgunjal-Omnichannel-Retail-Strategy-Specialization
+# Omnichannel-Retail-Strategy-Specialization
